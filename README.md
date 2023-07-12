@@ -1,2 +1,3 @@
-# Untitled
-
+- 🔭 I’m currently working @TokensFarm.com
+- 📫 How to reach me: djordjeviclazar@gmail.com
+- ⚡ Fun fact: Blockchain engineer
